@@ -15,7 +15,7 @@ The fastest way to reach me for collaborations, opportunities, or product-focuse
 
 - **LinkedIn:** [linkedin.com/in/mhamad-yaseen](https://www.linkedin.com/in/mhamad-yaseen)
 - **GitHub:** [github.com/mhamadYaseen](https://github.com/mhamadYaseen)
-- **Instagram:** [instagram.com/mhammad.dev](https://www.instagram.com/mhammad.dev)
+- **Instagram:** [instagram.com/_eng.muhammad_/](https://www.instagram.com/_eng.muhammad_)
 - **Portfolio:** [muhammad-yaseen.dev](https://muhammad-yaseen.dev/)
 - **Resume (PDF):** [muhammad-yaseen.dev/resume.pdf](https://muhammad-yaseen.dev/resume.pdf)
 
